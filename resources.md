@@ -28,3 +28,5 @@
 [Storytelling with Data](https://www.youtube.com/@storytellingwithdata) 
 
 [Datalyser](https://www.youtube.com/@danalyser)
+### Motivational videos 
+[Grit and Determination](https://www.google.com/search?q=motivtional+video+to+have+grit+and+determination&rlz=1C5CHFA_enUS1106US1111&oq=motivtional+video+to+have+grit+and+dete&gs_lcrp=EgZjaHJvbWUqCQgBECEYChigATIGCAAQRRg5MgkIARAhGAoYoAEyCQgCECEYChigATIJCAMQIRgKGKABMgkIBBAhGAoYoAEyCQgFECEYChigATIHCAYQIRirAjIHCAcQIRirAtIBCTE2OTQ4ajBqNKgCALACAQ&sourceid=chrome&ie=UTF-8#fpstate=ive&vld=cid:53ec8bd8,vid:rNuPw9H55us,st:0)
